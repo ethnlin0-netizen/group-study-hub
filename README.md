@@ -1,1 +1,1 @@
-# mern-project
+# https://groupstudyhub.xyz/
